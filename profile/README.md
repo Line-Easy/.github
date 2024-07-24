@@ -1,2 +1,2 @@
 ![](https://i.imgur.com/DYsSdSH.png)
-## Seu all-in-one app para Alimentação escola
+## Seu all-in-one app para alimentação escolar 🧡
